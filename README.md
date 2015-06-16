@@ -1,1 +1,1 @@
-# weirdo.xyz
+# CV
